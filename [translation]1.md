@@ -1,6 +1,6 @@
 ## 兰传节译（一）：芽月 断头台
 
-译自**Methley Violet**聚聚的德穆兰英文传记***Camille Desmoulins: A Biography
+译自**Methley Violet**聚聚的德穆兰英文传记***Camille Desmoulins: A Biography***
 
 （自娱自乐，无授权，侵删）
 
